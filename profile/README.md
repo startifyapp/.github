@@ -1,3 +1,3 @@
 ## Welcome to Startify! 👋
 
-### Find your unicorn.
+### The face of recruiting.
